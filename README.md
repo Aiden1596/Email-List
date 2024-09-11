@@ -1,3 +1,5 @@
+![1724678777860](https://github.com/user-attachments/assets/ea800d5a-b4f8-4bdb-a1a2-1165543cec46)
+
 # Effective Marketing Strategies for ADA Dentists
 
 
